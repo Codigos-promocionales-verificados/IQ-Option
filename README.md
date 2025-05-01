@@ -1,3 +1,4 @@
+# Cómo Usar el Código Promocional DFD8 de IQ Option para Obtener un Bono del +50%
 IQ Option es una de las plataformas populares para el comercio de opciones binarias, ofreciendo a los operadores acceso a una variedad de instrumentos financieros y oportunidades de ganancias. En este texto, encontrarás información sobre qué es un código promocional de IQ Option, cómo usarlo para recibir bonificaciones y promociones, y dónde encontrar códigos promocionales válidos. Además, este artículo presenta un código promocional válido **[DFD8](https://smartthriftfinder.com/iq-option-kostya)**, que otorga un bono del +50% en el depósito para nuevos jugadores con un depósito mínimo de $60.
 
 ![IQ-Option-Promocode](https://hackmd.io/_uploads/BkqaqZ8Jxl.png)  
